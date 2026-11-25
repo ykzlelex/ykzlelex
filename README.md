@@ -1,4 +1,4 @@
-Hii, I'm Leticiaa
+Hii, I'm Leticiaaa
 
 Here are some ideas to get you started:
 
@@ -11,3 +11,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Ano Brainrots
+67777777777777777777777777
+ronildo aguas
+haydex
+axion
+ysmart
