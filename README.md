@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-Ano Brainrots
+amo Brainrots
 67777777777777777777777777
 ronildo aguas
 haydex
